@@ -14,7 +14,7 @@ body {
     font-family: arial;
     width: 840px;
     height: 592px;
-    margin: 2em;
+    margin: auto;
 }
 
 h1 {
@@ -60,7 +60,7 @@ li.question {
     font-size: 1.3em;
     font-weight: 600;
     color: #555;
-    padding: .5em 0;
+    padding: 1.8em 0 .5em 0;
 }
 
 li.reponse {
