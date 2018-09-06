@@ -21,6 +21,13 @@ h1 {
     text-align: center;
 }
 
+h1 span {   
+    font-size: .6em;
+    display: block;
+    color: #555;
+    font-weight: 100;
+}
+
 p {
     font-size: 1.2em;
 }
