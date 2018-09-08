@@ -1,8 +1,7 @@
-ADAPTABILIT2
 # On peut commencer quand ?
-Janvier 2019 , le temps de faire des sous et de dire aurevoir.
+Je me prépare pour être disponible au 1er janvier 2019. J'imagine que cela me laissera le temps de constituer un petit matelas financier et de dire au revoir à mes amis, à ma famille.
 
-# Quels sont mes compétences ?
+# Quelles sont tes compétences ?
 À 18 ans, je ne peux pas prétendre avoir beaucoup d'expériences, cependant j'ai pu m'enrichir dans les domaines suivants :
     - Co-fondatrice de - pleinphare.xyz
     - Stages en cuisine et en service dans un gîte équestre - equisud.com
@@ -10,26 +9,24 @@ Janvier 2019 , le temps de faire des sous et de dire aurevoir.
     - Gardes d'enfants et ménages
 
 # Et avec le numérique ?
-Je maitrise bien l'outil informatique et les réseaux sociaux :
-Je pratique également le traitement de texte, les tableurs, j'ai même rapidement été initiée à l'html et aux langages de programmation.
+Je suis très à l'aise avec le numérique. Je parle couramment le traitement de texte, les tableurs. En bonus, je suis initiée à l'HTML/CSS et aux langages de programmation Python et JS. Je pratique instagram, snapchat, github, etc.
 
 # Comment me contacter ?
-
-Par mail, ou sur mon portable :
+Par mail ou sur mon portable :
     > langlois@louna.com
-    > 06 16 47 33 77
+    > +33 616 473 377
 
 # Tu parles espagnol ou pas ?
-Je me débrouille avec un petit niveau, mais je n'ai aucun doute en ma capacité d'adaptation, j'ai de grandes facilités avec les langues notamment l'espagnol. Si cela pose un problème je suis ok pour travailler mon espagnol jusqu'à mon départ, bien que je sois persuadé que l'apprentissage de la langue s'effectue 1000 fois plus vite sur le terrain.
-# Tu connais le syndrome de la sauveuse blanche ?
-Yes, je me suis questionné sur mes intentions en venant ici, je ne pense en aucun cas connaitre mieux que les personnes concernés par ces problématiques les solutions, je suis plutôt motivé par l'idée de découverte : d'une culture, d'un point de vue, d'une approche, sur des problématiques que j'ai traité à travers les problématiques de mon pays et de ma culture. 
+Plusieurs séjours en espagne m'ont permis de renforcer mes acquis scolaires. Je ne me sens pas encore expérimentée mais j'ai confiance en ma capacité d'adaptation. Si parler la langue est prioritaire pour mon recrutement, je suis prête à actionner une formation pour progresser rapidement.
 
-Il n'est pas question pour moi de volontourisme, ou de me donner bonne conscience, mais bien d'apprendre des autres et d'aprhéender une culture avec beaucoup d'humilité. 
+# Tu connais le syndrome de la sauveuse blanche ?
+Bingo, je me suis beaucoup questionnée sur le sujet. Ce n'est sans doute pas suffisant, mais cela m'a fait prendre conscience de mes privilèges et m'a aidé à clarifier mes intentions. Je peux dire aujourd'hui que je suis très éloignée du volontourisme et de la bonne conscience, mais bien d'apprendre des autres et d'apréhender une culture avec beaucoup d'humilité. 
+
 # Concrètement tu nous apportes quoi ?
 Mon energie, mon envie d'apprendre, mon écoute et mes compétences. Peut être un oeil neuf sur des problématiques auquel j'ai été peu ou pas confronté.
 
 # C'est quoi tes objectifs en venant ici ?
-La découverte d'une nouvelle culture, la continuité de la lutte pour les causes qui me tiennent à coeur.
+Je souhaite continuer à travailler sur les causes qui me tiennent à cœur en prolongeant mon expérience dans d'autres contextes et d'autres cultures. 
 
 # Qu'entend-tu par discrimination ?
 Dans mon asso j'ai travaillé sur l'immigration, le sexisme, l'homophobie et le handicap.
