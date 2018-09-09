@@ -20,19 +20,18 @@ Par mail ou sur mon portable :
 Plusieurs séjours en espagne m'ont permis de renforcer mes acquis scolaires. Je ne me sens pas encore expérimentée mais j'ai confiance en ma capacité d'adaptation. Si parler la langue est prioritaire pour mon recrutement, je suis prête à actionner une formation pour progresser rapidement.
 
 # Tu connais le syndrome de la sauveuse blanche ?
-Bingo, je me suis beaucoup questionnée sur le sujet. Ce n'est sans doute pas suffisant, mais cela m'a fait prendre conscience de mes privilèges et m'a aidé à clarifier mes intentions. Je peux dire aujourd'hui que je suis très éloignée du volontourisme et de la bonne conscience, mais bien d'apprendre des autres et d'apréhender une culture avec beaucoup d'humilité. 
+Bingo, je me suis beaucoup questionnée sur le sujet. Ce n'est sans doute pas suffisant, mais cela m'a fait prendre conscience de mes privilèges et m'a aidé à clarifier mes intentions. Je pense qu'aujourd'hui, je suis très éloignée du volontourisme et de la bonne conscience.  
 
-# Concrètement tu nous apportes quoi ?
-Mon energie, mon envie d'apprendre, mon écoute et mes compétences. Peut être un oeil neuf sur des problématiques auquel j'ai été peu ou pas confronté.
+# Concrètement, que pense-tu pouvoir nous apporter ?
+Je viens avec un minimum d'intention, et beaucoup d'envie. L'envie d'apprendre, de m'immerger, de découvrir et de m'adapter à vos problèmatiques. 
 
 # C'est quoi tes objectifs en venant ici ?
 Je souhaite continuer à travailler sur les causes qui me tiennent à cœur en prolongeant mon expérience dans d'autres contextes et d'autres cultures. 
 
-# Qu'entend-tu par discrimination ?
+# Qu'entends-tu par discrimination ?
 Dans mon asso j'ai travaillé sur l'immigration, le sexisme, l'homophobie et le handicap.
-Je me sens particulièrement touché par le droit des femmmes, les violences infantiles, et la problématique de genre.
+Je me sens impliquée, concernée et engagée dans le droit des femmmes, les violences infantiles et la problématique de genre.  
 
-Bien que je sois convaincue par les luttes concernant le racisme, l'immigration et l'homosexualité, je me sens plus à l'aise d'agir avec les thématiques par lesquelles je suis concernés.
 # Et l'environnement ?
 Bien que je n'ai jamais travaillé sur ces problématiques je suis intéréssé par le travail sur les animaux pour lequels je lutte à mon échelle par mon végétarisme et mon soin à la cause animale. 
 
